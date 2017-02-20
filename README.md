@@ -8,7 +8,6 @@ Desde então, milhões de pessoas têm tentado. Curando o corpo, ajustando a fam
 
 Se você deseja experimentá-lo, não deixe de ler atentamente as instruções e executá-las com precisão.
 
-_EMMET FOX_  
+_EMMET FOX, 1935_  
 _The Seven Day Mental Diet_  
 _Direitos Reservados_  
-_1963 por Emmet Fox_  
