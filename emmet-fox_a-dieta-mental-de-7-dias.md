@@ -47,5 +47,5 @@ O ponto acima é de vital importância e bastante sutil. Você não vê que dete
 Uma palavra final de cautela: Não diga a ninguém que você está fazendo a dieta, ou que você pretende fazê-la. Mantenha este extraordinário projeto estritamente para si mesmo. Lembre-se que sua alma é o Lugar Sagrado do Altíssimo. Quando tiver passado os sete dias com sucesso, e assegurado sua demonstração, deixe passar um tempo razoável para estabelecer uma nova mentalidade e, então, conte a história a outra pessoa que você acha que poderá ajudá-la. E finalmente, lembre-se que nada dito ou feito por qualquer pessoa pode conseguir tirá-lo da dieta. Apenas sua própria reação à conduta de outras pessoas pode fazer isso.
 
 >Voluntary translation: Marco Telles  
-email: coyoterj@gmail.com  
+email: coyoterj at gmail.com  
 February 23, 2017.  
